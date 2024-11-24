@@ -10,3 +10,12 @@ H - https://colab.research.google.com/drive/12qSIrlQaR35xL4BASIVwpjEE6SEtucdR?us
 I - https://colab.research.google.com/drive/1FVbbtmuYTPwtDIYqSVLRCNNRuWHFh2SP?usp=sharing
 
 #Video Links:
+A- https://youtu.be/pdr7T0NWvmE
+B - https://youtu.be/gCNFYJVaeNw
+C - https://youtu.be/IkrrG7F1Frs
+D - https://youtu.be/DchnFAzmJxI
+E - https://youtu.be/DchnFAzmJxI
+F - https://youtu.be/kJU8muxH1rU
+G - https://youtu.be/tj9H3CmXHBQ
+H - https://youtu.be/IIZMCsPVgP8
+I - https://youtu.be/10_5NkgArHk
